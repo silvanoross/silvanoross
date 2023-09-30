@@ -1,7 +1,7 @@
 # Hi, My name is Silvano Ross
 ---
 ## Contact Info
-> email: silvanoross3@gmail.com | [LinkedIn](https://www.linkedin.com/in/silvano-ross-b6a15a93/) 
+> email: silvanorossml@gmail.com | [LinkedIn](https://www.linkedin.com/in/silvano-ross-b6a15a93/) 
 ---
 ## Summary
 
